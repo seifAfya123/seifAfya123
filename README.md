@@ -10,11 +10,12 @@
 
 - 👫 I’m looking to collaborate with other developers
 
-- 📫 How to reach me **seifeslam05@gmail.com**
-
 - ⚡ Fun fact **I don't like movies**
 
 - 👀 I am looking for internships
+
+- 📫 Contact: **seifeslam05@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
